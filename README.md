@@ -18,6 +18,6 @@ Discord: savagelylol.
 Roblox: savage_beast7000
 
 # Thanks To
-All my friends, Swag, Justin, Kloor, JJ, Turflix, Alex, Uhhoops, 
+All my friends, Swag, Justin, Kloor, JJ, Turflix, Alex, Uhhoops and Yr35
 
 <img src="https://github.com/savagebeast7000/savagebeast7000/blob/913772d918dbad46d7ad6fc85e43fb2f94c9eb1e/attachment%20(4).png" width="500px">
