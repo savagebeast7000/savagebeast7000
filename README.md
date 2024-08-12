@@ -2,7 +2,7 @@
 👋 **savage**/sav/sag/saggy
 
 # My Flex's
-**780,107 Roblox Visits In Total** 🔥
+**780,107 Roblox Visits In Total** (All Accounts) 🔥
 
 **Contibuted To 5.3 Million Roblox Visits** 🔥
 
@@ -15,3 +15,8 @@
 
 # Socials
 Discord: savagelylol.
+Roblox: savage_beast7000
+
+# Thanks To
+All my friends, Swag, Justin, Kloor, JJ, Turflix, Alex, Uhhoops, 
+
