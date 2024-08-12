@@ -20,3 +20,4 @@ Roblox: savage_beast7000
 # Thanks To
 All my friends, Swag, Justin, Kloor, JJ, Turflix, Alex, Uhhoops, 
 
+nbsp;<img src="https://raw.githubusercontent.com/savagebeast7000/savagebeast7000/main/attachment_4.png" width="18px">
