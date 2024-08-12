@@ -21,4 +21,4 @@ Twitter: savagelylol
 # Thanks To
 All These Cool Folks, Swag, Justin, Kloor, JJ, Turflix, Alex, Uhhoops and Yr35
 
-<img src="https://github.com/savagebeast7000/savagebeast7000/blob/913772d918dbad46d7ad6fc85e43fb2f94c9eb1e/attachment%20(4).png" width="470px"> <img src="https://github.com/savagebeast7000/savagebeast7000/blob/3649729e01abd61eaf4e0ee5907543d4ed42a2ab/sneako.gif" width="505">
+<img src="https://github.com/savagebeast7000/savagebeast7000/blob/913772d918dbad46d7ad6fc85e43fb2f94c9eb1e/attachment%20(4).png" width="475px"> <img src="https://github.com/savagebeast7000/savagebeast7000/blob/3649729e01abd61eaf4e0ee5907543d4ed42a2ab/sneako.gif" width="505">
